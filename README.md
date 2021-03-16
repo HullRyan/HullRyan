@@ -1,0 +1,7 @@
+- Current Junior at the University of North Carolina at Chalotte
+- Studying Computer Science with a focus in Software Development
+- Current intrests in mobile and web app development
+- Many cuurent projects and alwasy love to explore and learn more
+- 
+- Reach me @hull.ryanc@gmail.com 
+- Connecct with me on LinkedIn @https://www.linkedin.com/in/ryan-hull-478b64178/
