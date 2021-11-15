@@ -1,4 +1,4 @@
-- Current Junior at the University of North Carolina at Chalotte
+- Current Senior at the University of North Carolina at Chalotte
 - Studying Computer Science with a focus in Software Systems and Networks
 - Current interests in mobile and web app development
 - Many cuurent projects and alwasy love to explore and learn more
