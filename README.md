@@ -1,4 +1,4 @@
-Salesforce Developer at Ally  
+Software Engineer
 Current Masters Student at UNCC  
 BS CS from UNCC  
   
