@@ -1,5 +1,5 @@
-Software Engineer
-Current Masters Student at UNCC  
+Software Engineer 
+Masters Student at UNCC - CS - AI/ML   
 BS CS from UNCC  
   
 Reach me by email @hull.ryanc@gmail.com   
