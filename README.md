@@ -1,4 +1,4 @@
-Software Engineer 
+Software Engineer  
 Masters Student at UNCC - CS - AI/ML   
 BS CS from UNCC  
   
